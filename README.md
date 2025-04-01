@@ -1,4 +1,3 @@
-# Anonymous
 
 ![image](https://github.com/Anonymous2025XX/Anonymous/blob/main/image/table1.png)
 
